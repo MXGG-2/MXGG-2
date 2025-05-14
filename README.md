@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me: omegagamingyt.13@gmail.com
 - 😄 Pronouns: Au/Ra
-- ⚡ Fun fact: My main Github account is @MXGGG-Official
+- ⚡ Fun fact: My main Github account is @MXGG-Official
 
 <!---
 MXGG-2/MXGG-2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
